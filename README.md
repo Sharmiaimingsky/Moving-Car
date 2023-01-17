@@ -1,4 +1,4 @@
-Hey There, I am Sharmistha (Also goes by Sharmi🤜🤛)👋
+### Hi I am Sharmistha (Also goes by Sharmi🤜🤛)
 
 
 
